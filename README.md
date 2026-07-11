@@ -5,3 +5,4 @@ Developed by Legendizito/YikaBloxd/Daworaqu
 ## Any issues?
 
 Direct Message me in Discord (**lxgendtm**)
+Direct Message me in Energy Website (**Legendizito**)
