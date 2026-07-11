@@ -4,6 +4,7 @@ Developed by Legendizito/YikaBloxd/Daworaqu
 
 ## Any issues?
 Create GitHub issue
+
 Direct Message me in Discord (**lxgendtm**)
 
 Direct Message me in Energy Website (**Legendizito**)
